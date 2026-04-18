@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  the　dirtiest　you　is　the　cutest
+  the filthy you is the cutest
 </p>
 
 <p align="center">
